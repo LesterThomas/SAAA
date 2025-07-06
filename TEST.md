@@ -19,3 +19,18 @@ So look up above, let your spirit soar,
 In the world of clouds, there's always more.
 A reminder of dreams, both near and far,
 In the sky's embrace, we find who we are.
+
+As the storms roll in, they gather in might,
+A tapestry woven, a breathtaking sight.
+They rumble and roar, a powerful show,
+In their fleeting forms, the wild winds blow.
+
+Through the seasons they change, a beautiful dance,
+From wispy white strands to a thunderous glance.
+In the twilight's glow, they shimmer and fade,
+A canvas of colors, a masterpiece made.
+
+So cherish the clouds, in their ever-shifting grace,
+For in their soft presence, we find our place.
+A reminder of life, in its ebb and flow,
+In the heart of the sky, our dreams will grow.
