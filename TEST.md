@@ -1,21 +1,16 @@
-# A Poem About Clouds
+# A New Poem About Clouds
 
-Fluffy and white, they drift so high,
-In the vast blue canvas of the sky.
-Whispers of dreams in the gentle breeze,
-Clouds dance and twirl with effortless ease.
+In the sky so vast and wide,
+Clouds like ships in the ocean glide.
+Puffy white and shades of gray,
+They dance and play throughout the day.
 
-Some are like cotton, soft and light,
-Others like shadows, a mystical sight.
-They gather together, a family so grand,
-Painting the heavens, a magical land.
+Some bring rain, a gentle shower,
+Nourishing earth, a precious power.
+Others drift in the golden light,
+Painting sunsets, a breathtaking sight.
 
-When the sun sets low, they blush with gold,
-Stories of wonder and beauty unfold.
-In the rain's embrace, they weep and sigh,
-A symphony of nature, as time drifts by.
-
-So look up above, let your spirit soar,
-In the world of clouds, there's always more.
-A reminder of dreams, both near and far,
-In the sky's embrace, we find who we are.
+Whispers of dreams in their soft embrace,
+A canvas of wonder, a tranquil space.
+So let us gaze and let our minds roam,
+In the world of clouds, we find our home.
