@@ -1,16 +1,16 @@
-# Whispers of the Clouds
+# Dance of the Clouds
 
-In the sky, so vast and wide,  
-Clouds like ships in a gentle tide.  
-Puffy dreams in shades of white,  
-Drifting softly, a wondrous sight.  
+In the azure sky, they float and play,  
+Whispers of dreams in a soft ballet.  
+Cotton candy dreams, in the sunlight's embrace,  
+Drifting and swirling, a delicate grace.  
 
-Stormy grays and silver linings,  
-Nature's art, with perfect timings.  
-Whirling winds and thunder's call,  
-In their dance, we find it all.  
+Shadows they cast on the fields below,  
+A canvas of stories, in sunlight's glow.  
+From fluffy white to the stormy gray,  
+They dance through the heavens, come what may.  
 
-So let us gaze and let us dream,  
-In every cloud, a hidden theme.  
-A world above, so free and grand,  
-Whispers of the clouds, hand in hand.
+So let us watch as they change and shift,  
+Nature's own magic, a wondrous gift.  
+In every formation, a tale to unfold,  
+The dance of the clouds, a sight to behold.
