@@ -1,21 +1,16 @@
-# Poem About Clouds
+# Clouds in the Sky
 
-In the sky, so vast and wide,
-Fluffy clouds like dreams abide.
-Whispers soft, they drift and sway,
-Painting pictures, night and day.
+Fluffy whispers in the blue,
+Drifting softly, dreams anew.
+Cotton castles, high and bright,
+Chasing shadows, dancing light.
 
-Cotton castles, white and bright,
-Dancing gently, pure delight.
-Shadows cast on fields below,
-A fleeting touch, a soft hello.
+Storm clouds gather, dark and bold,
+Tales of thunder, stories told.
+Yet behind the tempest's frown,
+Sunlight waits to wear the crown.
 
-Stormy clouds, a darker hue,
-Bring the rain, a cleansing dew.
-Yet in their heart, a silver line,
-A promise of the sun to shine.
-
-So let us gaze and let us dream,
-Of clouds that float, of skies that gleam.
-In every shape, in every form,
-They tell a tale, a gentle storm.
+So let us watch the skies above,
+In every cloud, a sign of love.
+For in their forms, we find our way,
+A canvas painted, day by day.
