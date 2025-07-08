@@ -1,16 +1,16 @@
-# Clouds in the Sky
+# Whispers of the Clouds
 
-Fluffy whispers in the blue,
-Drifting softly, dreams anew.
-Cotton castles, high and bright,
-Chasing shadows, dancing light.
+In the sky, so vast and wide,  
+Clouds like ships in a gentle tide.  
+Puffy dreams in shades of white,  
+Drifting softly, a wondrous sight.  
 
-Storm clouds gather, dark and bold,
-Tales of thunder, stories told.
-Yet behind the tempest's frown,
-Sunlight waits to wear the crown.
+Stormy grays and silver linings,  
+Nature's art, with perfect timings.  
+Whirling winds and thunder's call,  
+In their dance, we find it all.  
 
-So let us watch the skies above,
-In every cloud, a sign of love.
-For in their forms, we find our way,
-A canvas painted, day by day.
+So let us gaze and let us dream,  
+In every cloud, a hidden theme.  
+A world above, so free and grand,  
+Whispers of the clouds, hand in hand.
