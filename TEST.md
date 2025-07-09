@@ -1,20 +1,20 @@
-**Ode to the Clouds**  
-In the azure dome, they roam,  
-Whispers soft, like a gentle poem.  
-Cotton dreams in the sky's embrace,  
-Drifting slowly, a tranquil grace.  
+**Ode to the Chickens**  
+In the barnyard bright, they cluck and play,  
+Feathers ruffled in the light of day.  
+Golden beaks and eyes so keen,  
+In their world, they reign as queen.  
 
-Puffy shapes in the sunlight's gleam,  
-Floating high, like a child's dream.  
-They gather, dance, and play around,  
-In their realm, joy is found.  
+Pecking grains with joyful glee,  
+Chickens roam so wild and free.  
+With a flap and a hop, they strut about,  
+In their clucking song, there's never a doubt.  
 
-Storm clouds gather, dark and deep,  
-Secrets held, they silently keep.  
-With thunder's roar and lightning's flash,  
-Nature's power in a brilliant clash.  
+Under the sun, they bask and preen,  
+In the grass, they find their green.  
+With a cackle and a cheerful sound,  
+In the heart of the farm, happiness is found.  
 
-As the sun sets, they turn to gold,  
-Stories of the day, silently told.  
-In the night, they fade from sight,  
-Leaving behind the stars so bright.
+As the day ends, they settle down,  
+In their cozy coop, they wear their crown.  
+Dreaming of corn and fields so wide,  
+In the night, with stars as their guide.
