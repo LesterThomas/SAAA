@@ -1,20 +1,20 @@
-**Whispers of the Clouds**  
-In the sky, so vast and wide,  
-Fluffy wonders gently glide.  
-Cotton castles, soft and bright,  
-Dancing in the morning light.  
+**Ode to the Clouds**  
+In the azure dome, they roam,  
+Whispers soft, like a gentle poem.  
+Cotton dreams in the sky's embrace,  
+Drifting slowly, a tranquil grace.  
 
-They gather round, a playful crew,  
-Painting skies in shades of blue.  
-Whispers of dreams, they softly share,  
-Floating freely, without a care.  
+Puffy shapes in the sunlight's gleam,  
+Floating high, like a child's dream.  
+They gather, dance, and play around,  
+In their realm, joy is found.  
 
-Stormy tempests, fierce and bold,  
-In their arms, the tales unfold.  
-Raindrops fall, a sweet embrace,  
-Nature's tears, a gentle grace.  
+Storm clouds gather, dark and deep,  
+Secrets held, they silently keep.  
+With thunder's roar and lightning's flash,  
+Nature's power in a brilliant clash.  
 
-As twilight falls, they blush and glow,  
-A canvas painted, a stunning show.  
-In the night, they drift away,  
-Leaving stars to light the way.
+As the sun sets, they turn to gold,  
+Stories of the day, silently told.  
+In the night, they fade from sight,  
+Leaving behind the stars so bright.
