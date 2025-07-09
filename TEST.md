@@ -1,20 +1,20 @@
-**Ode to the Clouds**  
-In the sky, they drift and sway,  
-Shadows cast in a dance of gray.  
-Whispers of storms in their silent shroud,  
-Veils of mystery, the ominous clouds.  
+**Ode to the Chickens**  
+In the barn, they cluck and peck,  
+Feathers ruffled, a lively trek.  
+Omnivores bold, they scavenge and roam,  
+In search of scraps, they make it their home.  
 
-They gather thick, a foreboding sight,  
-Hiding the sun, stealing the light.  
-With thunder's growl and lightning's flash,  
-They unleash their fury in a torrential crash.  
+With beady eyes and a curious gaze,  
+They scratch at the earth in a feathery haze.  
+But beware the shadows that lurk in the night,  
+For danger is near, and it’s not out of sight.  
 
-Yet in their depths, a beauty lies,  
-A tempest's rage, a painter's skies.  
-In the chaos, a calm can be found,  
-As nature's symphony plays all around.  
+A hawk in the sky, a fox on the prowl,  
+The world can be dark, and the night can howl.  
+Yet in their clucking, a strength can be found,  
+In the heart of the flock, they stand their ground.  
 
-So let them roll, let them roam,  
-In their embrace, we find our home.  
-For even in darkness, there's a spark,  
-In the heart of the clouds, a light in the dark.
+So let them roam, let them be free,  
+In the dance of life, they find their glee.  
+For even in peril, they rise and they shine,  
+In the tale of the chickens, their spirit divine.
