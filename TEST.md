@@ -1,20 +1,20 @@
-**Ode to the Chickens**  
-In the barn, they cluck and peck,  
-Feathers ruffled, a lively trek.  
-Omnivores bold, they scavenge and roam,  
-In search of scraps, they make it their home.  
+**Whispers of the Clouds**  
+In the vast expanse of the azure sky,  
+Fluffy clouds drift, like dreams passing by.  
+Cotton candy puffs, so soft and white,  
+They dance with the wind, a beautiful sight.  
 
-With beady eyes and a curious gaze,  
-They scratch at the earth in a feathery haze.  
-But beware the shadows that lurk in the night,  
-For danger is near, and it’s not out of sight.  
+Some are like castles, grand and tall,  
+Others like wisps, so tiny and small.  
+They gather together, a playful parade,  
+Casting soft shadows, where sunlight has played.  
 
-A hawk in the sky, a fox on the prowl,  
-The world can be dark, and the night can howl.  
-Yet in their clucking, a strength can be found,  
-In the heart of the flock, they stand their ground.  
+When storms brew fierce, they darken and swell,  
+A thunderous symphony, nature's own bell.  
+Yet after the rain, they part with a sigh,  
+Revealing a rainbow, a promise up high.  
 
-So let them roam, let them be free,  
-In the dance of life, they find their glee.  
-For even in peril, they rise and they shine,  
-In the tale of the chickens, their spirit divine.
+So let us look up, and dream with delight,  
+For the clouds are the poets of day and of night.  
+In their gentle embrace, we find peace and calm,  
+A reminder of beauty, a soothing balm.
